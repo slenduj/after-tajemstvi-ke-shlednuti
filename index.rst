@@ -5,10 +5,10 @@ Sledujte After: Tajemství Online film 2021 HD zdarma HD!! After: Tajemství 202
 4K UHD | 1080P FULL HD | 720P HD | MKV | MP4 | DVD | Blu-Ray
 
 
-░░▒▓██► `Sledujte After: Tajemství Celé Filmy ke shlédnutí Online <https://bit.ly/38KawFv>`_
+░░▒▓██► `Sledujte After: Tajemství Celé Filmy ke shlédnutí Online <https://bit.ly/3z1jkBr>`_
 
 
-░░▒▓██► `Sledujte After: Tajemství Celý Film CZ-SK Online Zadarmo <https://bit.ly/38KawFv>`_
+░░▒▓██► `Sledujte After: Tajemství Celý Film CZ-SK Online Zadarmo <https://bit.ly/3z1jkBr>`_
 
 Tessu a Hardina čeká doposud největší výzva jejich vztahu, ta výzva se jmenuje život. Po konci Univerzity má Tessa možnost získat práci svých snů, která ale znamená stěhování přes půl Ameriky, zatímco Hardin si maloval, že by se společně mohli přestěhovat do Londýna. Ve chvílích, kdy se pevně drží v objetí, se zdá, že jsou nerozluční, že jim u nohou leží celý svět. Rozdělit je ale může Hardinova žárlivost, divoké chování a jeho talent Tessu opakovaně zraňovat. Jak dlouho dokáže Tessa vydržet koloběh žhavých vyznání, ošklivých scén a následných odpouštění?
 
